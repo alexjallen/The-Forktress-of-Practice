@@ -2,6 +2,6 @@
 
 ## 👁️ 🫀 💰
 
-> "I have the higher ground, Anakin!"
+> "It's over Anakin; I have the higher ground!"
 
  *- Obi-Wan Jabroni*
